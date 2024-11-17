@@ -21,4 +21,7 @@ This certificate is provided under [License Type] license. See the LICENSE file 
 For inquiries or further information, please contact:
 - Ankit Dhanawat
 - Email: ankitd0811@gmail.com
+- Linkdin: https://www.linkedin.com/in/ankit-dhanawat/
+- Instagram: https://www.instagram.com/ankit_jain__002/
+  
 
